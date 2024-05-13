@@ -1,0 +1,1 @@
+# konvolusyon_hesab-
